@@ -1,0 +1,2 @@
+# d82f03edca2bcdc1-affiliate-marketing-partnershi
+affiliate marketing professionals waste hours on switching between tabs and losing context. This fixes that.  Privacy-first: all processing stays local, no data sent to third-party servers. Works directly in Chrome, Edge, and Brave — no switching apps required.  ## What's Included  - Affiliate Marketing Partnership And Affiliate Management Platform
